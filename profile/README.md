@@ -1,5 +1,5 @@
-Hi there 👋
-Marketer for the AI era.
+Hi there 👋,
+I'M Marketer for the AI era.
 - SEO, GEO, AEO, LLMO
 - Positioning, launch, growth
 - Open source, in public
